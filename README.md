@@ -1,2 +1,2 @@
-# hamzah.github.io
+# hamzahsby.github.io
 My coding journey's records.
