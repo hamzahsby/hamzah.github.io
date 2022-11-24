@@ -1,2 +1,2 @@
 Assalamu'alaikum. 
-Welcome to my pages that under construction. ;-)
+Welcome to my coding journey's records that under construction. Thank you. ;-)
